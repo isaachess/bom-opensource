@@ -68,7 +68,13 @@ An account of Lehi and his wife Sariah and his four sons, being called, (beginni
 
 > 20 And inasmuch as ye shall keep my commandments, ye shall prosper, and shall be led to a land of promise; yea, even a land which I have prepared for you; yea, a land which is choice above all other lands.
 
-> 21 And inasmuch as thy brethren shall rebel against thee, they shall be cut off from the presence of the Lord. 22 And inasmuch as thou shalt keep my commandments, thou shalt be made a ruler and a teacher over thy brethren. 23 For behold, in that day that they shall rebel against me, I will curse them even with a sore curse, and they shall have no power over thy seed except they shall rebel against me also. 24 And if it so be that they rebel against me, they shall be a scourge unto thy seed, to stir them up in the ways of remembrance."
+> 21 And inasmuch as thy brethren shall rebel against thee, they shall be cut off from the presence of the Lord.
+
+> 22 And inasmuch as thou shalt keep my commandments, thou shalt be made a ruler and a teacher over thy brethren.
+
+> 23 For behold, in that day that they shall rebel against me, I will curse them even with a sore curse, and they shall have no power over thy seed except they shall rebel against me also.
+
+> 24 And if it so be that they rebel against me, they shall be a scourge unto thy seed, to stir them up in the ways of remembrance."
 
 ## Chapter 3
 
